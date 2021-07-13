@@ -1,15 +1,16 @@
 **INGREDIENTS**
- 
- * 275 g Dark chocolate
- * 200 g Rich tea or digestive biscuits vegan
- * 100 g coconut oil
- * 100 g maple syrup
- * 60 g of mixed nuts and dried fruit
-   * we used 30g walnuts 30g goji berries
-   
+good for 12 pieces
+no oven needed
+
+- 275 g Dark chocolate
+- 200 g Rich tea or digestive biscuits vegan
+- 100 g coconut oil
+- 100 g maple syrup
+- 60 g of mixed nuts and dried fruit
+  - we used 30g walnuts 30g goji berries
 
 **INSTRUCTIONS**
- 
+
 Put the dark chocolate in a bain-marie or water bath together with the coconut oil and melt.  
 Once melted, remove from the heat, add the maple syrup in and mix well.  
 Leave this bowl on the bain marie to keep it liquid.  
